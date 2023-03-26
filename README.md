@@ -1,5 +1,4 @@
 ![Professional WordPress and Web Developer](https://pbs.twimg.com/profile_banners/1638960255303573504/1679605729/1080x360)
-## Hey,
 ### I am Md Jahid Hasan
 #### Professional WordPress and Web Developer
 
